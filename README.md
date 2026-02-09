@@ -1,6 +1,21 @@
 ## Hi there 👋Technical Skill Spotlight: Spatial Logic & Coordinate Systems
 
-"Specialized in non-linear terminal manipulation and real-time logic repair. 
+I safely access update, advance, work with, and improve scripts
+
+producing the necessary results of your choice. 
+
+using my skill showcased and displayed in my TonDigitalStream repostitory with -----real time recorded Mp4  with original audio----- to 
+
+vocalise my expert presence and strong capabilities with new langauge and problems i am freshly exposed to  by
+
+Upoading a video example where I deal with an operation that I decided to carry out by    -    accessing a AI Assisted generated script 
+
+code and changing it to suit my needs to show that it my strong suit. Using my understanding of the code that is already there to produce
+
+the results I want.
+
+
+that are already written and need a high class engineer to manage. I understand them and access them for you on a native level 
 
 I leverage trigonometric functions ($\sin, \cos$) and geometric constants ($\pi$) to manage multi-axis data flows.
 
