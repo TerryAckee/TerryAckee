@@ -1,3 +1,22 @@
+
+
+.
+
+🧪 ARCHITECT VS. AUTOMATION: SCRUTINIZE MY LOGIC
+[Watch the Live Solve & Audio Proof →] 
+
+
+I am not a prompt engineer. I am a Functional Architect who uses AI as a tool, not a crutch.
+
+The Challenge: I invite any Lead Engineer or Senior Developer to audit the TonDigitalStream MP4. Don't just look at the code—listen to the audio. Hear me catch the logic gaps in C that the AI missed.
+
+
+
+
+
+
+
+
 ## Hi there 👋Technical Skill Spotlight: Spatial Logic & Coordinate Systems
 
 I safely access update, advance, work with, and improve scripts
