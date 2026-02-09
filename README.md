@@ -3,7 +3,6 @@
 I safely access update, advance, work with, and improve scripts
 
 producing the necessary results of your choice. 
-In the TonDigitalStream repository, I provide raw, unedited MP4 footage with original audi
 
 using my skill showcased and displayed in my TonDigitalStream repostitory with -----real time recorded Mp4  with original audio----- to 
 
