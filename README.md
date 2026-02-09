@@ -1,10 +1,11 @@
 
 
-.https://github.com/user-attachments/assets/bce1d395-a914-4807-bf3a-3106f991bdbe
+
+
 
 
 🧪 ARCHITECT VS. AUTOMATION: SCRUTINIZE MY LOGIC
-[Watch the Live Solve & Audio Proof →] 
+[Watch the Live Solve & Audio Proof →]           .https://github.com/user-attachments/assets/bce1d395-a914-4807-bf3a-3106f991bdbe
 
 
 I am not a prompt engineer. I am a Functional Architect who uses AI as a tool, not a crutch.
