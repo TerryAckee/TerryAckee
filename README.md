@@ -15,6 +15,14 @@ code and changing it to suit my needs to show that it my strong suit. Using my u
 the results I want.
 
 
+
+
+
+
+
+
+
+
 that are already written and need a high class engineer to manage. I understand them and access them for you on a native level 
 
 I leverage trigonometric functions ($\sin, \cos$) and geometric constants ($\pi$) to manage multi-axis data flows.
