@@ -2,8 +2,9 @@
 
 
 
-The amount of mistakes I made, targeted, and corrected through my pin pointed logic 
-shows i didn't cheat to get the answer I show and explain my work to get the answer in real time, HERE in this video below!
+The amount of mistakes I made, targeted, and corrected show that I am human.  <----- and I AM Real and the human engine 
+behind the power of this script not being just AI Generated but "Triston" and human powered!
+I show and explain my work to get the answer in real time, HERE in this video below!
 
 🧪 ARCHITECT VS. AUTOMATION: SCRUTINIZE MY LOGIC
 [Watch the Live Solve & Audio Proof →]           .https://github.com/user-attachments/assets/bce1d395-a914-4807-bf3a-3106f991bdbe
