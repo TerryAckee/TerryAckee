@@ -1,6 +1,7 @@
 
 
-.
+.https://github.com/user-attachments/assets/bce1d395-a914-4807-bf3a-3106f991bdbe
+
 
 🧪 ARCHITECT VS. AUTOMATION: SCRUTINIZE MY LOGIC
 [Watch the Live Solve & Audio Proof →] 
