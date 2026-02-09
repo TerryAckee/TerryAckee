@@ -3,7 +3,7 @@
 
 
 The amount of mistakes I made, targeted, and corrected through my pin pointed logic 
-shows i didn't cheat to get the answer I showed working it out to get the answer in real time.
+shows i didn't cheat to get the answer I show and explain my work to get the answer in real time, HERE in this video below!
 
 🧪 ARCHITECT VS. AUTOMATION: SCRUTINIZE MY LOGIC
 [Watch the Live Solve & Audio Proof →]           .https://github.com/user-attachments/assets/bce1d395-a914-4807-bf3a-3106f991bdbe
