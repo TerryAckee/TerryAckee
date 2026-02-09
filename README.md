@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋Technical Skill Spotlight: Spatial Logic & Coordinate Systems"Specialized in non-linear terminal manipulation and real-time logic repair. I leverage trigonometric functions ($\sin, \cos$) and geometric constants ($\pi$) to manage multi-axis data flows. My approach focuses on 'Practical Resiliency'—the ability to maintain procedural integrity and system uptime while navigating complex, high-velocity coordinate environments."
 
 <!--
 **TerryAckee/TerryAckee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
