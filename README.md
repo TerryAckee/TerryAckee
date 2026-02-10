@@ -2,7 +2,7 @@
 
 
 
-The amount of mistakes I made, targeted, and corrected show that I am human.  <--'
+The amount of mistakes I made, targeted and corrected while real time recorded show that I am human.  <--'
 --- and I AM Real and the human engine 
 
 ## Seeking the Architect-Tier partner who values the geometric symmetry of vector mapping over the rote repetition of scripted patterns
